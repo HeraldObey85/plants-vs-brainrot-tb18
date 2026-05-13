@@ -1,4 +1,4 @@
-#  
+#  Experience plants vs brainrots like never before with plants vs brainrots top Scripts, the #1 Script. Includes speed and unlimited stamina for
 
 
 
